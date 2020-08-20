@@ -1,2 +1,2 @@
-# Shyanne's Computing Work!
-## my first repo :>
+# *A* *Story* *for* *my* **teachers**
+## 

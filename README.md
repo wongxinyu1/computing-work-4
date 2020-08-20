@@ -1,2 +1,2 @@
-# Shyanne's repository 
+# shyanne's repository 
 ## enjoy :>

@@ -1,2 +1,2 @@
-# shyanne's repository 
+#ur so funny
 ## enjoy :>

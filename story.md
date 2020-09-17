@@ -8,4 +8,6 @@ He turned his head towards the glassdoor again as he pressed the phone to his ea
 That *someone* was coming closer. Slowly but surely. 
 Then, Bob's phone **dropped**.
 His mouth was agape, as he realised that there were no footprints in the snow. 
-It was his own *reflection* :D
+It was his own *reflection* 
+
+this story is a fail THANKS:>>>>>>>>>>>>>>>>>>>>>>>>

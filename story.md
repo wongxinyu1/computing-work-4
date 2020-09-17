@@ -9,5 +9,7 @@ That *someone* was coming closer. Slowly but surely.
 Then, Bob's phone **dropped**.
 His mouth was agape, as he realised that there were no footprints in the snow. 
 It was his own *reflection* 
+Suddenly, the reflection started moving closer... and closer... 
+As Bob stood there, shock still...
 
 this story is a fail THANKS:>>>>>>>>>>>>>>>>>>>>>>>>
